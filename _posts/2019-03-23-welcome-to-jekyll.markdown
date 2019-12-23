@@ -1,25 +1,21 @@
-EDUCATION 
+**EDUCATION** 
 
-**Chongqing University of Education** 
+Chongqing University of Education 
 
-**English |**  **Bachelor**
+English |  Bachelor
 
-WORK EXPERIENCES
+**WORK EXPERIENCES**
 
 Chongqing Yunyang Fu Yun English
 
-CAMPUS EXPERIENCES
+**CAMPUS EXPERIENCES**
 
 Resume Program Student Entrepreneurship Association
 
-CERTIFITE
+**CERTIFITE**
 
 Mandarin dimethyl 
 
- 
-
 CET-4/6
-
- 
 
 VFP
